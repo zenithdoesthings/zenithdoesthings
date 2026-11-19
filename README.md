@@ -1,6 +1,8 @@
 ## oh gosh it's zenithdoesthings :D
 
 ## pls sub to the youtube @zenithdoesthings 🙏
+
+## [epic channel](http://youtube.com/channel/@zenithdoesthings)
 <!--
 **zenithdoesthings/zenithdoesthings** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
