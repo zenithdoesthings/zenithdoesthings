@@ -1,9 +1,6 @@
-## Hi there 👋
+## oh gosh it's zenithdoesthings :D
 
-# This is some text for testing wow!
-
-# Testing text 2 :D
-
+## pls sub to the youtube @zenithdoesthings 🙏
 <!--
 **zenithdoesthings/zenithdoesthings** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
